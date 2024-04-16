@@ -1,2 +1,2 @@
 # No Time For Noobs Plugin
-NTFN
+NTFN will make u stronker 💪🗿
